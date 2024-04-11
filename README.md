@@ -11,4 +11,4 @@
 ## E-mail
 ro0123@naver.com
 ## Links
-- Notion: https://phantom-team-5ed.notion.site/NONZE-S-PROJECT-6ca1e7659f864b3c80674a760560071b?pvs=4
+- Notion: https://jolly-mousepad-14e.notion.site/yu-study-planner-846f6b345f614a98b15fd3ecf03ac364?pvs=4
